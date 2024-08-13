@@ -11,6 +11,8 @@ COMMANDS NEED TO BE LEARNED
 ![image](https://github.com/user-attachments/assets/8dcd9dbc-5d4c-4743-9336-3b995cc74b88)
 ![image](https://github.com/user-attachments/assets/a955878c-21cc-4055-a7a8-fe84c006a0e5)
 ![image](https://github.com/user-attachments/assets/aa2cf39d-fff8-4d39-a1d4-0504e7831b40)
+![image](https://github.com/user-attachments/assets/7337b73c-15f4-41ad-9919-ffa5d5fa80a1)
+
 
 
 
